@@ -7,3 +7,6 @@ Meu nome e Nicolly Eduarda
 - Utilizo esse espaço para minha organizaçao e compartilhamentondos meus projetos desenolvidos
 
 - ### Voce pode entrar em contato comigo
+  
+00001104653424sp@al.educacao.sp.gov.br
+@eduardaa___lsiilva
